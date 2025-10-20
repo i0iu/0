@@ -10,9 +10,9 @@
 <br> *Completed*
 
 > **Source:**
-- https://www.fanmtl.com/novel/my-son-you-just-entered-elementary-school-how-can-you-become-the-richest-person.html in ***English***
-- http://www.xiunews.com/192_192354/ in Chinese
-- https://www.biquge345.com/book/556211/ in Chinese
+- [https://www.fanmtl.com/novel/my-son-you-just-entered-elementary-school-how-can-you-become-the-richest-person.html](https://www.fanmtl.com/novel/my-son-you-just-entered-elementary-school-how-can-you-become-the-richest-person.html) in ***English***
+- [http://www.xiunews.com/192_192354/](http://www.xiunews.com/192_192354/) in Chinese
+- [https://www.biquge345.com/book/556211/](https://www.biquge345.com/book/556211/) in Chinese
 
 > **Spoliers:**
 ``` Gu Xiu was reborn back to the beginning of the century as a six-year-old elementary school student.
