@@ -1,5 +1,19 @@
 # Link Shortened
 
+> **Title:** <br> 儿子，你才念小学，怎么成首富了
+
+> **Translated Title:** <br> My Son, You Just Entered Elementary School, How Can You Become The Richest Person?
+
+> **Author:** <br> 萝卜味薄荷糖
+
+> **Status:** <br> *Completed*
+
+> **Source:** <br> https://i0iu.github.io/0/AAA005
+
+>  **YouTube Playlist:** <br> 
+
+---
+
 > **Title:** <br> "不会真有人觉得修仙难吧"
 
 > **Translated Title:** <br> "No one really thinks cultivating immortality is difficult, right?"
