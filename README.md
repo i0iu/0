@@ -1,5 +1,19 @@
 # Link Shortened
 
+> **Title:** <br> 重生之超级银行系统
+
+> **Translated Title:** <br> Rebirth of the Super Bank System
+
+> **Author:** <br> 都市小说
+
+> **Status:** <br> *Completed*
+
+> **Source:** <br> https://i0iu.github.io/0/AAA006
+
+>  **YouTube Playlist:** <br> 
+
+---
+
 > **Title:** <br> 儿子，你才念小学，怎么成首富了
 
 > **Translated Title:** <br> My Son, You Just Entered Elementary School, How Can You Become The Richest Person?
@@ -10,7 +24,7 @@
 
 > **Source:** <br> https://i0iu.github.io/0/AAA005
 
->  **YouTube Playlist:** <br> 
+>  **YouTube Playlist:** <br> [PL9Q9utYw0fqnR0inC-M033V8NiHbkhIbH](https://www.youtube.com/playlist?list=PL9Q9utYw0fqnR0inC-M033V8NiHbkhIbH)
 
 ---
 
